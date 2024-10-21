@@ -1,3 +1,6 @@
+https://drive.google.com/drive/folders/1RA4uWDWa34z3orVirbNCzS9UZbQyvU_l?usp=sharing
+
+
 #военком карта https://drive.google.com/drive/folders/1xgGpjcGEEuG7ZeYfoXT8l11sOyyzvdpO?usp=drive_link
 
 
