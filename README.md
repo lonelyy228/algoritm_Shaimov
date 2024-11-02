@@ -1,3 +1,7 @@
+
+https://feechki-vinks.yougile.com/team/9b410e650700/%D0%9A%D0%B0%D1%80%D1%82%D0%BE%D1%87%D0%BA%D0%B0-%D0%B4%D0%BB%D1%8F-%D0%B2%D0%BE%D0%B5%D0%BA%D0%BE%D0%BC%D0%B0%D1%82%D0%B0?lang=ru
+
+
 #er https://drive.google.com/drive/folders/1WJgFKQhJtlvCLcpxPFsPX5IAfiWS8fUd?usp=sharing
 
    чет там https://docs.google.com/document/d/1sJo1WGwhZpTOKAvSxv7ihaiRX2M-XO1Hcu_OaRdUHDI/edit?usp=sharing
