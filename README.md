@@ -1,3 +1,10 @@
+
+https://feechki-vinks.yougile.com
+
+
+
+
+
 #er https://drive.google.com/drive/folders/1WJgFKQhJtlvCLcpxPFsPX5IAfiWS8fUd?usp=sharing
 
    чет там https://docs.google.com/document/d/1sJo1WGwhZpTOKAvSxv7ihaiRX2M-XO1Hcu_OaRdUHDI/edit?usp=sharing
